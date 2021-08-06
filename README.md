@@ -1,3 +1,3 @@
 # coleh.xyz  
-my slightly better website  
+new website coming soon 
 https://coleh.xyz/
